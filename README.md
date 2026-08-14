@@ -57,3 +57,14 @@ $\textcolor{purple}{\textsf{(im working on it) i get very gatekeepy with things 
 			<br>
 		</div>
 
+
+
+
+<img src="https://64.media.tumblr.com/eebd365e0b46bf7e29ccc5a7480bc7b2/0e7b3e89568af973-7b/s2048x3072/c4ef295c0c72bab19c513f276f7db651b8ba84ad.pnj" height="320"></p>
+
+*me and nat, i had my hair pink and rainbow bangs for 3 years straight before liam got popular so i feel like a larp,*
+
+</div>
+
+*i have teal hair now this art is old <3*
+
