@@ -26,6 +26,7 @@ $\textcolor{purple}{\textsf{(im working on it) i get very gatekeepy with things 
 <img src="https://s5.ezgif.com/tmp/ezgif-508ba17e7cc20a1b.webp">
 <img src="https://s5.ezgif.com/tmp/ezgif-5c82b4d083234104.gif">
 <img src="https://s5.ezgif.com/tmp/ezgif-51762642eb4fa88f.gif">
+<img src="https://s5.ezgif.com/tmp/ezgif-50ff8ef1fbb834f8.jpg">
 
 
 <br></span></span></p>
