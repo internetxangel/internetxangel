@@ -1,5 +1,4 @@
 <div align="center"> <div style="text-align:center;font-family:'ms gothic';font-size:17px;">
-	<p>
 	<br><img src="https://64.media.tumblr.com/4632dad8e644160209c618dfde9d77ba/52159fc2256916c7-eb/s2048x3072/23366394275b4727f2c3ae792b3a8a26927ecdd7.pnj" alt="23366394275b4727f2c3ae792b3a8a26927ecdd7.pnj" style="width:565px;">
 	</p>
 	<p>
@@ -22,7 +21,9 @@
   <br></span></span></p>
 
 
-**BOUNDARIES!!** im a big natalie yumeshiper!! doubles of my yume and my irl of kangel please **dni**, i love you guys a lot but its mainly a **trauma response.** (im working on it) i get very gatekeepy with things i love, always i will REFUSE to harass anyone!
+$\textcolor{purple}{\textsf{im a big natalie yumeshiper!! doubles of my yume and my irl of kangel please dni, i love you guys a lot but its mainly a trauma response.}}$
+$\textcolor{purple}{\textsf{(im working on it) i get very gatekeepy with things i love, always i will REFUSE to harass anyone}}$ <img src="https://64.media.tumblr.com/aa8ea4a7e01d1609e250a1db1ecdfad0/aedb6da426e81592-35/s250x400/33d3491d32f617db352467cc461560cdf8684fc4.gifv" style="" class="fr-fic fr-dii" width="30" height="30"></p>
+
 </span></strong></span></span></span></p>
   <br></span></span></p>
 </span></strong></span></span></span></p>
