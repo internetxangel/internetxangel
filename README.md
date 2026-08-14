@@ -20,12 +20,20 @@
 
 $\textcolor{purple}{\textsf{im a big natalie yumeshiper!! doubles of my yume and my irl of kangel please dni, i love you guys a lot but its mainly a trauma response.}}$
 $\textcolor{purple}{\textsf{(im working on it) i get very gatekeepy with things i love, always i will REFUSE to harass anyone}}$ <img src="https://64.media.tumblr.com/aa8ea4a7e01d1609e250a1db1ecdfad0/aedb6da426e81592-35/s250x400/33d3491d32f617db352467cc461560cdf8684fc4.gifv" style="" class="fr-fic fr-dii" width="30" height="30"></p>
+	</span></strong></span></span></span></p>
+			
+<img src="https://s5.ezgif.com/tmp/ezgif-5a659ad8d71a030c.gif">
+<img src="https://s5.ezgif.com/tmp/ezgif-508ba17e7cc20a1b.webp">
+<img src="https://s5.ezgif.com/tmp/ezgif-5c82b4d083234104.gif">
+<img src="https://s5.ezgif.com/tmp/ezgif-51762642eb4fa88f.gif">
 
-</span></strong></span></span></span></p>
-  <br></span></span></p>
+
+<br></span></span></p>
 </span></strong></span></span></span></p>
 		<p><span style="font-size:14px;"><span style="color:rgb(230,255,254);"><span style="font-size:18px;"><strong><span style="color:rgb(254,255,230);"></span></strong><strong><span style="color:rgb(244,230,255);">i love everybody i meet!! i love making friends most of all!!! u are all so cute. Aw. So cute. pokepokes</span></strong></span></span></span></p>
-		<p><span style="font-size:14px;"><span style="color:rgb(230,255,254);"><span style="font-size:18px;"><strong><span style="color:rgb(244,230,255);"><span style="font-size:18px;"><span style="color:rgb(252,230,255);"><strong>i dont have much of an dni besides basic, im a activist and i protest often ^_^ take that as u will, </strong></span></span></span></strong></span><span style="font-size:24px;"><strong><span style="color:rgb(254,255,230);"></span></strong></span></span></span><span style="font-size:24px;"><span style="color:rgb(230,255,254);"><strong><span style="color:rgb(230,255,254);"></span></strong></span></span></p>
+		
+		
+<p><span style="font-size:14px;"><span style="color:rgb(230,255,254);"><span style="font-size:18px;"><strong><span style="color:rgb(244,230,255);"><span style="font-size:18px;"><span style="color:rgb(252,230,255);"><strong>i dont have much of an dni besides basic, im a activist and i protest often ^_^ take that as u will, </strong></span></span></span></strong></span><span style="font-size:24px;"><strong><span style="color:rgb(254,255,230);"></span></strong></span></span></span><span style="font-size:24px;"><span style="color:rgb(230,255,254);"><strong><span style="color:rgb(230,255,254);"></span></strong></span></span></p>
 			<p><span style="color:rgb(230,255,254);">i love you!!</span></p>	<p><span style="color:rgb(230,255,254);"><span style="font-size:18px;"><span style="color:rgb(252,230,255);"></span></span></span></p><span style="color:rgb(230,255,254);">
 		<p style="text-align:center;">
 </span>
