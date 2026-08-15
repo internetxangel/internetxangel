@@ -22,12 +22,12 @@ $\textcolor{purple}{\textsf{im a big natalie yumeshiper!! doubles of my yume and
 $\textcolor{purple}{\textsf{(im working on it) i get very gatekeepy with things i love, always i will REFUSE to harass anyone}}$ <img src="https://64.media.tumblr.com/aa8ea4a7e01d1609e250a1db1ecdfad0/aedb6da426e81592-35/s250x400/33d3491d32f617db352467cc461560cdf8684fc4.gifv" style="" class="fr-fic fr-dii" width="30" height="30"></p>
 	</span></strong></span></span></span></p>
 			
-<img src="https://s5.ezgif.com/tmp/ezgif-5a659ad8d71a030c.gif">
-<img src="https://s5.ezgif.com/tmp/ezgif-508ba17e7cc20a1b.webp">
-<img src="https://s5.ezgif.com/tmp/ezgif-5c82b4d083234104.gif">
-<img src="https://s5.ezgif.com/tmp/ezgif-51762642eb4fa88f.gif">
-<img src="https://s5.ezgif.com/tmp/ezgif-50ff8ef1fbb834f8.jpg">
-
+<img src="https://i.pinimg.com/originals/2d/f5/fb/2df5fbc51ee8a10431f89afe2d2c94ca.gif" style="width:200px;">
+<img src="https://s5.ezgif.com/tmp/ezgif-5c82b4d083234104.gif"style="width:200px;">
+<img src="https://64.media.tumblr.com/2a043f6583ecf809a173dbf6b75188e6/1a78ecdbf731754d-15/s250x400/28fd69403a19a44cbffe821dfef87a90e7ff4964.gifv"style="width:159px;">
+<img src="https://media1.tenor.com/m/EEgzUlI4PzAAAAAd/natalie-scatorccio-yellowjackets.gif"style="width:148px;">
+<img src="https://s5.ezgif.com/tmp/ezgif-50ff8ef1fbb834f8.jpg"style="width:200px;">
+<img src="https://s5.ezgif.com/tmp/ezgif-50ff8ef1fbb834f8.jpg"style="width:200px;">
 
 <br></span></span></p>
 </span></strong></span></span></span></p>
