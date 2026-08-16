@@ -23,7 +23,7 @@ $\textcolor{purple}{\textsf{(im working on it) i get very gatekeepy with things 
 	</span></strong></span></span></span></p>
 			
 <img src="https://i.pinimg.com/originals/2d/f5/fb/2df5fbc51ee8a10431f89afe2d2c94ca.gif" style="width:200px;">
-<img src="https://s5.ezgif.com/tmp/ezgif-5c82b4d083234104.gif"style="width:200px;">
+<img src="https://media1.tenor.com/m/XrjcxXcnU10AAAAC/natalie-scatorccio.gif"style="width:176px;">
 <img src="https://64.media.tumblr.com/2a043f6583ecf809a173dbf6b75188e6/1a78ecdbf731754d-15/s250x400/28fd69403a19a44cbffe821dfef87a90e7ff4964.gifv"style="width:159px;">
 <img src="https://media1.tenor.com/m/EEgzUlI4PzAAAAAd/natalie-scatorccio-yellowjackets.gif"style="width:148px;">
 <img src="https://i.pinimg.com/736x/bd/9e/e6/bd9ee68b73814434906ee9964b2444ab.jpg"style="width:150px;">
