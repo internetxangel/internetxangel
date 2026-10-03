@@ -1,6 +1,5 @@
 <div align="center"> <div style="text-align:center;font-family:'ms gothic';font-size:17px;">
 	<br><img src="https://64.media.tumblr.com/4632dad8e644160209c618dfde9d77ba/52159fc2256916c7-eb/s2048x3072/23366394275b4727f2c3ae792b3a8a26927ecdd7.pnj" alt="23366394275b4727f2c3ae792b3a8a26927ecdd7.pnj" style="width:565px;">
-	</p>
 	<p>
 		<img src="https://64.media.tumblr.com/d66e6c711a26e9c6328f3bc9e1192dc6/d23207aaddc7a146-bb/s540x810/9df98300f059584ae5b6bef4d8c7e5ca4b8fcaac.gifv" width="40" style="width:30px;" alt="9df98300f059584ae5b6bef4d8c7e5ca4b8fcaac.gifv">&nbsp;𖹭. <span style="color:rgb(230,255,254);">pounce</span> .𖹭 <img src="https://64.media.tumblr.com/3a7b637c947e89a1e0dd1a3b88f37938/d23207aaddc7a146-11/s1280x1920/acd3f0b053d48c3ee7680fe385998713207f4235.gifv" width="40" style="width:30px;" alt="acd3f0b053d48c3ee7680fe385998713207f4235.gifv">&nbsp;</p>
     </div>
